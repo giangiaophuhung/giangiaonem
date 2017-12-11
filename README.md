@@ -6,3 +6,5 @@ Các sản phẩm giàn giáo do Phú Hưng cung cấp đạt tiêu chuẩn ch�
 Sản phẩm được sản xuất bằng thép mạ kẽm chắc chắn, chống oxi hóa tốt.
 
 Đem đến sự hài lòng nhất dành cho Khách Hàng, và đáp ứng tiến độ thi công công trình.
+
+Ngoài sản phẩm dàn giáo nêm, thì chúng tôi còn cung cấp các loại giàn giáo khác như: giàn giáo khung, giàn giáo ringlock,... các phụ kiện giàn giáo kèm theo.
